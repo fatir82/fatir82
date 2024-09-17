@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @fatir82
-- 👀 I’m chetory DayooooooooooooooooS
+- 👋 Ali jooon 
+- 👀 lapat BademjooooooooooooooooooooooooooooooooooooN
 - 🌱 Ali Joooooooooooooooooooooon
 - 💞️ ShombooletoooooooooOOOOOOOOOOO
 - 😄 JJJJJJJJJJon
