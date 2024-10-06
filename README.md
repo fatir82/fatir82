@@ -3,7 +3,7 @@
 - 🌱 Ali Joooooooooooooooooooooon
 - 💞️ ShombooletoooooooooOOOOOOOOOOO
 - 😄 JJJJJJJJJJon
-- ⚡ Fun fact: ...
+- ⚡ LaShhiiiiiiiiiiiiiiiiiiiiiiiiiiiii: ...
 
 <!---
 fatir82/fatir82 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
