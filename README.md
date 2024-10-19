@@ -1,7 +1,7 @@
 - 👋 Ali jooon 
-- 👀 lapat BademjooooooooooooooooooooooooooooooooooooN
+- 👀BademjooooooooooooooooooooooooooooooooooooN
 - 🌱 Ali Joooooooooooooooooooooon
-- 💞️ ShombooletoooooooooOOOOOOOOOOO
+- 💞️ 
 - 😄 JJJJJJJJJJon
 - ⚡ LaShhiiiiiiiiiiiiiiiiiiiiiiiiiiiii: ...
 
